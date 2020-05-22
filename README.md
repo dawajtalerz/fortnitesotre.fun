@@ -1,1 +1,1 @@
-# fortnitesotre.fun
+# fortnitestore.fun
